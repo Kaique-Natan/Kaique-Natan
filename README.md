@@ -2,6 +2,6 @@
 
 Perfil de **Kaique Natan**,
 
-Isso mesmo
+Plano B
 
 É tudo, por enquanto. Com o tempo mudarei algumas coisas.
